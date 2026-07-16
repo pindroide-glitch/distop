@@ -1,0 +1,9 @@
+# UMBRAL
+
+El psicólogo recibía cada mañana un sobre con una única frase: una descripción de la decisión más importante que tomaría la persona citada ese día. Nunca fallaba. Nadie preguntaba de dónde venían aquellos sobres; bastaba con comprobar que la ciudad empezaba a obedecerlos antes incluso de leerlos. Los pacientes llegaban con una esperanza cansada, buscando un resquicio entre lo que sentían y lo que ya parecía escrito.
+
+Al principio solo escuchaba. Aprendió a reconocer el instante exacto en que una mirada se rendía, cuando alguien dejaba de imaginar futuros porque el sobre ya había elegido uno. Entonces ocultaba algunas predicciones, alteraba otras con silencios deliberados. Observaba pequeñas diferencias: una reconciliación aplazada, una renuncia convertida en espera. Eran victorias diminutas, casi invisibles, pero suficientes para conservar la idea de que la voluntad respiraba.
+
+Un sobre llegó sin destinatario. Dentro había una frase breve: *“Intentará demostrar que el comportamiento no puede encerrarse en una predicción.”* Comprendió que hablaba de él. Lo guardó sin abrir del todo, convencido de que ignorarlo rompería el mecanismo. Sin embargo, cada gesto empezó a parecer una respuesta prevista. Las manos dudaban antes de tocar un picaporte; las palabras sonaban ensayadas. Incluso el miedo adquirió una disciplina insoportable.
+
+Aquella noche quemó todos los sobres. El fuego iluminó el despacho con un resplandor tranquilo, casi compasivo. Cuando las llamas se apagaron, encontró entre las cenizas una última hoja intacta. No necesitó leerla. Afuera, las sirenas comenzaron a acercarse con la puntualidad de una cita olvidada. Entendió demasiado tarde que destruir las predicciones también había sido una predicción. Permaneció inmóvil mientras la puerta cedía, y el silencio terminó de cumplir lo que nadie volvería a escribir.
