@@ -1,9 +1,0 @@
-# LA MAREA INMÓVIL
-
-Cada amanecer, el mar retrocedía unos metros más. No dejaba peces ni algas, sino objetos perdidos décadas atrás: relojes detenidos, cartas sin abrir, fotografías que nadie recordaba haber tomado. La costa se convirtió en un santuario para quienes buscaban una explicación y en una pesadilla para quienes encontraban demasiado.
-
-Una restauradora comenzó a limpiar aquellas fotografías. Descubrió que el papel no mostraba el pasado, sino escenas ocurridas pocas horas después de ser reveladas. Una imagen enseñaba una casa intacta; al atardecer, un incendio la reducía a cenizas. Otra mostraba una despedida en un andén vacío; esa misma noche, el tren jamás llegaba. Nadie creyó sus advertencias hasta que dejaron de fallar.
-
-Pronto la ciudad empezó a organizar su vida alrededor de las imágenes. Se cancelaban bodas, se levantaban muros, se abandonaban calles enteras. Las sonrisas desaparecieron de los retratos familiares porque cualquier gesto podía convertirse en evidencia de un futuro inevitable. La restauradora, incapaz de soportar aquella obediencia silenciosa, ocultó una fotografía encontrada entre las últimas mareas. En ella aparecía abrazando a un niño desconocido bajo un cielo despejado.
-
-Durante semanas esperó ese encuentro. El mar siguió retirándose y la playa terminó donde antes comenzaba el horizonte. El niño nunca apareció. En cambio, comprendió demasiado tarde que la figura pequeña de la imagen no era un niño, sino una estatua erosionada por la sal. Cuando la última ola desapareció para siempre, el aire perdió toda humedad. La ciudad se resquebrajó lentamente bajo un cielo inmóvil, y la fotografía fue lo único que conservó el recuerdo del océano.
